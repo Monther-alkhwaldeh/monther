@@ -1,1 +1,2 @@
 # monther
+#Growth Mindset:
